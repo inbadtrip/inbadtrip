@@ -1,1 +1,1 @@
-![Счётчик просмотров](https://count.getloli.com/@inbadtrip?theme=asoul)
+![Счётчик просмотров](https://count.getloli.com/@inbadtrip?theme=miku)
