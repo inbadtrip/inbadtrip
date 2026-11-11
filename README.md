@@ -1,1 +1,1 @@
-![Счётчик просмотров](https://count.getloli.com/@inbadtrip?theme=miku)
+![Счётчик просмотров](https://count.getloli.com/@inbadtrip?theme=cat-girls-yay)
